@@ -1,2 +1,10 @@
-# JgfBot
-self bot 2 asist
+BUAT AMBIL TOKKEN 
+ http://101.255.95.249:6969
+
+× TERIMA KASIH PADA ×
+```{}{}{}{}{}{}{}{}{}{}{}{}{}{}{}
+ALLAH SWT
+MAK
+BAPAK
+KAWAN KAWAN YANG ANU```
+YOU ARE THE BEST AND KEEP SOLID °
